@@ -1,4 +1,4 @@
-
+Get the ultimate Monosnap for macOS utility with Monosnap for macOS rare Utility: clipboard-manager & quick-launch. Featuring clipboard-manager and quick-launch, it's the best
 
 
 
